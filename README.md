@@ -1,0 +1,2 @@
+# premium-cast-iron-fix-001-cast-iron-repair-cold-stitch
+Tired of losing track of which crack you stitched, which filler you used, and which step comes next on your cast iron restoration? Turn your bench into a repeatable, documented lab with the Cast Iron Repair &amp; Cold Stitch Craft Lab.  This Notion template gives you a structured workshop notebook to manage every repair from start to finish. Instead of
